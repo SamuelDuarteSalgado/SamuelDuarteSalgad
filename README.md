@@ -8,8 +8,8 @@ Meu nome é Samuel Duarte
 
   ### Você entrar em contato 📧
   samuelsalgado1208@gmail.com
+![](https://media1.tenor.com/m/ZARBViZffU4AAAAd/hd-smirk.gif)  
   
-  https://media1.tenor.com/m/ZARBViZffU4AAAAd/hd-smirk.gif
 
 
 
