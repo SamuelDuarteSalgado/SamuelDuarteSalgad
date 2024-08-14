@@ -2,7 +2,7 @@
 
 Meu nome é Samuel Duarte
 
-  -Estou estudando na Alura
+  -Estou estudando na [Alura](https:
   -Estou me desenvolvendo na linguagem javascript
   -Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvlvidos
 
